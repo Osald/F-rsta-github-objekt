@@ -1,1 +1,0 @@
-# F-rsta-github-objekt
